@@ -1,2 +1,1 @@
-# script
-Yoi
+//SUBSCRIBE HERMAN CHANEL
